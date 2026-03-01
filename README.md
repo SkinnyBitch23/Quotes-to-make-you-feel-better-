@@ -9,6 +9,6 @@
 - a wolf doesn't concern himself with opinions of sheep
 - being a lone wolf isn't about being lost its about finding yourself 
 - never mess with a woman who hangs upside-down for fun
-- when trust breaks,healing and the Muslim heart being placed around evil people is a test 
+- when trust breaks infidelity,healing and the Muslim heart being placed around evil people is a test 
 - I don't follow dreams I hunt my goals 
 - the way you care about yourself determines how much others will care about you 
