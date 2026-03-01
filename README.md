@@ -8,3 +8,4 @@
 - a good way to overcome stress is to help others out of theirs 
 - a wolf doesn't concern himself with opinions of sheep
 - being a lone wolf isn't about being lost its about finding yourself 
+- never mess with a woman who hangs upside-down for fun
