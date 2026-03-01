@@ -5,3 +5,4 @@
  - take time to do what makes your soul happy 
 - you have enough, you do enough, you are enough relax 
 - life feels better near the sea
+- a good way to overcome stress is to help others out of theirs 
