@@ -1,2 +1,3 @@
 # Quotes-to-make-you-feel-better-
- - inhale peace exhale stress 
+ - inhale peace exhale stress
+ - peace is always beautiful 
