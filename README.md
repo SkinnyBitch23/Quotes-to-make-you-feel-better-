@@ -13,3 +13,4 @@
 - I don't follow dreams I hunt my goals 
 - the way you care about yourself determines how much others will care about you 
 - perfection is ugly 
+- shower thoughts & soap suds there's nothing better than that 
